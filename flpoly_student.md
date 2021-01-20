@@ -1,6 +1,6 @@
-## First Name Last Name
+## Rei Sanchez-Arias
 
-### Term Year 
+### SP 2022
 
 DSBA student at [Florida Polytechnic University](https://www.floridapoly.edu) currently enrolled in: 
 
