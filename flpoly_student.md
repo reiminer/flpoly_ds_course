@@ -2,7 +2,7 @@
 
 ### SP 2022
 
-DSBA student at [Florida Polytechnic University](https://www.floridapoly.edu) currently enrolled in: 
+DSBA Faculty at [Florida Polytechnic University](https://www.floridapoly.edu) currently enrolled in: 
 
 - Course 1
 
